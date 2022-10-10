@@ -1,1 +1,1 @@
-# zad
+Mateusz Magdziński
